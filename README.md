@@ -46,4 +46,4 @@ Currently, I'm a **1st-year IT student** diving deep into **CSS** and exploring 
 
 
 ### 📫 Connect with Me!  
-If you ever want to chat, collaborate, or just say hi **hit my DMs up!** 💬
+If you ever want to chat, collaborate, or just say hi, **hit my DMs up!** 💬
